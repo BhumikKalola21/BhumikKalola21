@@ -19,7 +19,7 @@
 
 - A passionate Front-end developer from India
 - Currently Working as a developer
-- I’m open for a new job opportunity, this is [my resume](https://drive.google.com/file/d/1rNdbxgXiFnrgxsrZHdQXoTiJzQAfnW6c/view?usp=sharing)
+- I’m open for a new job opportunity, this is [my resume](https://drive.google.com/file/d/1f1L1aDr4PcfDzEGErkF3jT_eHvVu9VM_/view?usp=share_link)
 
 <br><br>
 
